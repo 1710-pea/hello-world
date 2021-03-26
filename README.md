@@ -1,4 +1,6 @@
 # hello-world
-just another repository
-1710-pea here. i like to read my books.
-i love to program and code
+
+Hi Humans
+
+1710-pea here. i love to pray always.i love my family.
+i would love to be amaong the raptured saints
